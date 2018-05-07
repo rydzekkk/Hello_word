@@ -1,2 +1,2 @@
 # Hello_word
-first one
+trochę pierdółek :)
